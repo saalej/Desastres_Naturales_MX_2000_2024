@@ -1,0 +1,1 @@
+# Desastres_Naturales_MX_2000_2024
